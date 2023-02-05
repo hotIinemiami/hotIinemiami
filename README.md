@@ -5,8 +5,6 @@
 if i'm not **afk,** i'm probably going to be a man of **few words.**   
 it's never an insult against you. i just prefer to **keep to myself.**
 
-i'd prefer it if you didn't **roleplay ships with me.** it's awkward.
-
 please **whisper me** any messages- i'm usually off tab and will **not** see them.   
 i appreciate **every** message, and i **don't** want you to think i'm ignoring you.
 
