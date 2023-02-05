@@ -1,6 +1,6 @@
 ![](https://i.imgur.com/vDrXk8I.gif)
 
-**jacket** - he/any - eng/spa. - [last.fm](https://www.last.fm/user/byleth_eisner).
+**jacket** - he/any - eng/esp. - [last.fm](https://www.last.fm/user/byleth_eisner).
 
 if i'm not **afk,** i'm probably going to be a man of **few words.**   
 it's never an insult against you. i just prefer to **keep to myself.**
